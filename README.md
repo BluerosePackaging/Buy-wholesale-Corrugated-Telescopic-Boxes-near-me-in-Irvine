@@ -1,4 +1,4 @@
-# Buy wholesale Corrugated Telescopic Boxes near me in Irvine | Bluerose Packaging
+# Buy Wholesale Corrugated Telescopic Boxes near me in Irvine | Bluerose Packaging
 
 Buy wholesale Corrugated Telescopic Boxes near me in Irvine for strong, adjustable packaging. Bulk discounts and fast local delivery available. Order today for flexible shipping solutions!
 
